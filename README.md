@@ -16,5 +16,3 @@ Estou focado em aprender sobre QA e sonho em trabalhar nessa área.
 Sou bastante eclético, no que se refere a música e filmes \
 Meu filme favorito é Whiplash e meu artista favorito é o John Mayer.\
 ![gif whplash](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExMXVsaWlmdWR4NjI0N3RjNTFkeWdudTQ3Mm51aTh0dDZvbjZrZHRwNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/e7N9oNgRAEjII/giphy.gif)   
-Tenho 2 gatos e torço para o Vasco da Gama. \
-![Gif gatinho](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExcDQwZTc0ZW90MzU1YXlmbHdmNG96dW9oNmI4OHpobDRxNGtrYmFsdiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/BeA1B4ANqpoMFiVh2Z/giphy.gif)   
